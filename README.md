@@ -8,7 +8,7 @@
 
 
 
-  
+[💗](https://wickedlygood.straw.page) [💗](https://changedforgood.straw.page/?template=true&embed=true)
 
 [ata](https://superinlove.atabook.org/?page=1) ✶ [rentry](https://rentry.co/ssuperinlove) ✶ [music](https://open.spotify.com/user/31yhwv3m7xnfp7x5dzdirdf4k5py?si=_mS0V5FdTs6AmbHh5Jew8A&utm_source=copy-link)
 
